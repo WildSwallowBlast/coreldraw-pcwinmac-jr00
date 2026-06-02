@@ -1,4 +1,4 @@
-# 
+# Professionnel CorelDRAW plugins pour Mac OS | Personnalisé CorelDRAW plugins pour PC Windows. Avec distorsion d'enveloppe et historique des versions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
